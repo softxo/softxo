@@ -2,6 +2,6 @@
 
 `notinlonesplendor` on Discord.
 
-[Discord Server](https://discord.gg/k7TUYX97)
+[Discord Server](https://discord.gg/KpkggK4UqB)
 
 If you need help, please follow [no hello](https://nohello.net/en/)
